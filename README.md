@@ -1,2 +1,11 @@
-# Phem.Creates
-Professional graphic design studio website for phem_creates offering social media designs, logo &amp; branding, posters, standees, banners, video editing, and catalog designs.
+# Phem Creates – Graphic Design Studio
+
+Professional graphic design services including:
+- Social Media Post Design
+- Logo & Branding
+- Poster, Banner & Standee Designs
+- Invitation & Greeting Cards
+- Thumbnails & Video Editing
+- Product & Service Catalog Designs
+
+📩 Contact via Instagram: https://instagram.com/phem_creates
