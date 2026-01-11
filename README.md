@@ -8,4 +8,4 @@ Professional graphic design services including:
 - Thumbnails & Video Editing
 - Product & Service Catalog Designs
 
-📩 Contact via Instagram: https://instagram.com/phem_creates
+📩 Contact via Instagram: https://instagram.com/phem.creates
